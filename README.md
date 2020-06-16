@@ -29,4 +29,3 @@ Blinded by his power and might, the foolish Ravan thought no mankind could harm 
 ## Conclusion
 
 No one should boast about his powers and consider others weak. Even a small ant can cause the death of such a huge elephant. Nature plays its own game. It is unparallelled. Mighty lion, The king of the jungle, cannot be defeated by anyone else, but he is preyed  upon by small flies and insects.
-   
