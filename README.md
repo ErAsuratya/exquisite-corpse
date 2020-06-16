@@ -20,6 +20,14 @@ After Ravan cut off his 10 heads and offered them, Brahmaji was pleased and appe
 
 ![Ram-aiming-to-kill-ravan.jpg](Ram-aiming-to-kill-ravan.jpg)
 
+Inorder to conquer the world, Ravan asked Brahma for the gift of immortality,but Brahma said- 
+ >*"Death is certain, my  child!". You must die after being born into this world. So I am unable to give you the blessing of immortality. You may ask for something else!"*
+
+Then the ambitiuos Ravan said- 
+>*"O Brahma, May no god or heavenly spirit kill me. Oh Lord! may no demon, monster or beast defaet me! Give me the blessing of victory over all these!" Brahma also said, "Tathasthu! and he disappeared.*
+
+Blinded by his power and might, the foolish Ravan thought no mankind could harm him. Man is like a hunt for him, which can be easily trampled and defeated. His mistake was that he considered mankind weak. That is why Shri Ram was able to cut of all his 10 head and kill him ruthlessly.
+
 ## Conclusion
    
 When the basket was ready, the little girl put on her red cloak and kissed her mother goodbye.
