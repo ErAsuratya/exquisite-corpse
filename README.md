@@ -5,7 +5,7 @@ According to Hindu scriptures, Lord Ram was born on the the day of Ram Navami. A
 ![10-Headed-Ravan](10-headed-Ravan.jpg)
 
 ## Ravan invited his death due to his small mistake
-King of Lanka "Ravan" wanted to conquer the whole world. But he knew that his dream could not come true without god's blessings. So he began to do great penance to please hus anestor god Brahma.
+King of Lanka "Ravan" wanted to conquer the whole world. But he knew that his dream could not come true without god's blessings. So he began to do great penance to please his anestor god Brahma.
 
 ![Ravan-the-ultimate-conquerer](Ravan-the-ultimate-conqueror.jpg)
 
@@ -29,8 +29,3 @@ Blinded by his power and might, the foolish Ravan thought no mankind could harm 
 ## Conclusion
 
 No one should boast about his powers and consider others weak. Even a small ant can cause the death of such a huge elephant. Nature plays its own game. It is unparallelled. Mighty lion, The king of the jungle, cannot be defeated by anyone else, but he is preyed  upon by small flies and insects.
-<<<<<<< HEAD
-   
-=======
-   
->>>>>>> corrections
