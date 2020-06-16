@@ -30,10 +30,3 @@ Blinded by his power and might, the foolish Ravan thought no mankind could harm 
 
 No one should boast about his powers and consider others weak. Even a small ant can cause the death of such a huge elephant. Nature plays its own game. It is unparallelled. Mighty lion, The king of the jungle, cannot be defeated by anyone else, but he is preyed  upon by small flies and insects.
    
-When the basket was ready, the little girl put on her red cloak and kissed her mother goodbye.
-
-> "Remember, go straight to Grandma's house," her mother cautioned.  "Don't dawdle along the way and please don't talk to strangers!  The woods are dangerous."
-
-> "Don't worry, mommy," said **Little Red Riding Hood**, "I'll be careful."
-
-But when **Little Red Riding Hood** noticed some lovely flowers in the woods, she forgot her promise to her mother.  She picked a few, watched the butterflies flit about for awhile, listened to the frogs croaking and then picked a few more...
